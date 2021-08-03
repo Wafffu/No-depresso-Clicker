@@ -1,3 +1,0 @@
-# Touhou paradise
-fumo
-
